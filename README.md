@@ -1,0 +1,2 @@
+# LongLivesCicles_LLC
+inteligencia evolutiva Path e.GAIA/AmpelRoboticsFleet/ML/AI/INSTINCT_FACTOR_IF/MACHINE_INSTINCT_LEARNING/lIntelligence_Evolution_IE/
